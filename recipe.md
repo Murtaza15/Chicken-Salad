@@ -1,0 +1,1 @@
+Make a mayo based dressing and add the juicy fruits and vegetables one-by-one. Then put the boiled chicken into the bowl and just mix everything so it is evenly spread out. Take the plum reserves and put it on top mix it well one last time and voila! Your amazing chicken salad is ready.
